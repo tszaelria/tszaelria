@@ -14,7 +14,7 @@ $${\color{#4f6f86}"\space Do \space you \space feel \space at \space all \space 
 <a href="https://rentry.co/riotingsynner"><img src="https://64.media.tumblr.com/8ff6aa3322a1cff6c75c308d80edcdd2/f6c16e4551d21c04-9e/s1280x1920/c18acd9f79667360eab091df3911cfe27dc9b953.pnj"></img></a>
 <h5/>
 
-<h5 align="center">  ੭　Zae 　˚ 　₊　They - He - She -- Rentry is a wip 　🔪
+<h5 align="center">  ੭　Zae 　˚ 　₊　They - She -- Rentry is a wip 　🔪
   
 　　💉    ﹕　@　tszaelria　◞　🩸 　˚.◦
 <h5/>
